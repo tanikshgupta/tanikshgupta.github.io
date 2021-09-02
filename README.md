@@ -1,2 +1,2 @@
 PORTFOLIO SITE : 
-http://tanikshgupta.me/
+http://tanikshgupta.live/
